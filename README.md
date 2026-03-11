@@ -1,1 +1,2 @@
 # Revelado
+Una vez hecha la exposición en la prensa, vuelva a cubrir ésta con el cartón, y llévela de nuevo a la mesa donde están las cubetas. Retire de la prensa el papel impresionado e introdúcelo en el revelador con la cara brillante hacia arriba, teniendo cuidado de que no queden burbujas de aire en su superficie. Balancee lentamente la cubeta de modo que el líquido esté constantemente en movimiento. La cubeta puede permanecer descubierta, a condición de que esté en la sombra proyectada por usted. 
